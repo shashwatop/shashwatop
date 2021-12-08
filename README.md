@@ -5,5 +5,5 @@
 - 📫 How to reach me on Instagram: https://www.instagram.com/shashwat6303/
 - 🧏‍♂️ Pronounce: He/His (or) shashwat.
 - 🕵🏻‍♂️ Want to be a White Hat Hacker. 
-- 😅 Very talkative person, Indian meme lover also (*-*).
+- 😅 Very talkative person, Indian meme lover also 😉.
 - 😘 Thanks for reading my profile 💖.
