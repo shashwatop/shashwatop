@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @shashwatop
 - 📚 I,m class 11th student.
 - 🌱 I’m currently learning Python V3.
-- 📫 How to reach me on Instagram: https://www.instagram.com/shashwat6303/
 - 🧏‍♂️ Pronounce: He/His (or) shashwat.
 - 🕵🏻‍♂️ Want to be a White Hat Hacker in future.
 - 😅 Very talkative person, Indian meme lover also 😉.
