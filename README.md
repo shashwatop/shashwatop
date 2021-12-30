@@ -1,7 +1,9 @@
-- 👋 Hi, I’m @shashwatop
-- 📚 I,m class 11th student.
-- 🌱 I’m currently learning Python V3.
-- 🧏‍♂️ Pronounce: He/His (or) shashwat.
-- 🕵🏻‍♂️ Want to be a White Hat Hacker in future.
-- 😅 Very talkative person, Indian meme lover also 😉.
-- 😘 Thanks for reading my profile 💖.
+- 👋 Hey, I’m @shashwatop
+- 📚 I,m an proxy user.
+- 🌱 I’m currently working on DNS and Internet protocol.
+- 🕵🏽‍♂️ I'm intersted in Web and System vulnerabilities. 
+- 🧏‍♂️ You can call me Shubh (or) Shashwat.
+- 😇 I want to be your friend.
+- 🙂 Mostly I listen more, and talk less.
+- 🎭 Last but not least, Take a look where you are on web.
+- 😘 Thanks for reading my profile, enjoy your life 💖.
