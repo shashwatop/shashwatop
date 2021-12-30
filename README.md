@@ -5,5 +5,5 @@
 - 🧏‍♂️ You can call me Shubh (or) Shashwat.
 - 😇 I want to be your friend.
 - 🙂 Mostly I listen more, and talk less.
-- 🎭 Last but not least, Take a look where you are on web.
+- 🎭 Last but not least, Did you noticed my DP.
 - 😘 Thanks for reading my profile, enjoy your life 💖.
